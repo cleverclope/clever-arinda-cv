@@ -11,9 +11,15 @@ new software applications. I am an Innovative software engineer with strong orga
 with four (4)years of experience. 
 
 GENDER: Male
+
 DATE OF BIRTH: March, 1997
+
 NATIONALITY: Ugandan	
+
 ADDRESS: Kampala, Uganda
+
 EMAIL: cleverarinda@gmail.com.
+
 CONTACTS: 0777586004, 0750482844.
+
 LinkedIn: arinda-ivan-clever
